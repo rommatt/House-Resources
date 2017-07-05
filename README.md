@@ -8,3 +8,7 @@ https://www.reddit.com/r/askportland/comments/6dg9jf/home_inspector_recommendati
 <h3>Tools</h3>
 
 https://www.harborfreight.com/
+
+<h3>Furniture</h3>
+
+https://www.cb2.com/
