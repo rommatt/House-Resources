@@ -12,3 +12,7 @@ https://www.harborfreight.com/
 <h3>Furniture</h3>
 
 https://www.cb2.com/
+
+<h3>Electronics</h3>
+
+https://www.monoprice.com // ton of deals on everything for home electronics
